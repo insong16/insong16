@@ -1,5 +1,5 @@
 ### HI I'M INSUNG😉
-
+- 🌱 I’m currently learning gyeseong high school
 <!--
 **insong16/insong16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
